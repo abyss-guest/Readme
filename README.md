@@ -1,9 +1,10 @@
-# Readme
+# Re4dme
 Hello! I'm redaqu4m4rine, but you c4n c4ll me Iris!
 4nxious...
 Phobi4s: 4r4chophobi4, 4crophobi4, nercophobi4
 
 Pronouns: She/Them
+
 I repl4ce the A's with 4's, please don't hate!
 4nd this is my first time using github.
 
