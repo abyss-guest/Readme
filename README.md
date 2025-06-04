@@ -14,7 +14,7 @@ F4vourite things: Block T4les, TR:UD, Roch4s313, IH4s4F4ceLulz, B4ldi's B4sics, 
 kin list:
 c4ppy0 (Roch4s313), Blue Noob (Block Tales),rdgy_4nn, xX4ce0fSp4desXx 
 
-DNI!: Fruitc4ke, moonflower, shellvision, r4cists (ple4se.), medh4mmer. (no.), subkit (theyre frenemies, why.)
+DNI!: r4cists (ple4se.), medh4mmer. (no.), subkit (theyre frenemies, why.)
 
 
 more stuff wont be 4dded, bec4use i dont know wh4t to 4dd..
